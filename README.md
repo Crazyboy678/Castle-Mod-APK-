@@ -58,6 +58,12 @@ Castle is a versatile streaming application that offers users access to a vast l
 
 # Ad-Free Premium Experience:
 
+<div align="center">
+
+[![image](https://github.com/Crazyboy678/Castle-Mod-APK-/blob/dcc225dd097d24a2fceaa6f964084d15a850bcce/castle-mod-apk-download.jpg)](https://advy.me/Apkdownload)
+
+</div>
+
 Castle offers an ad-free premium experience, allowing users to enjoy all movies, web series, and live TV without any interruptions from advertisements. This feature enhances the overall viewing experience, providing seamless entertainment.
 
 # How to Get Started with Castle App:
